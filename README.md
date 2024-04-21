@@ -1,1 +1,1 @@
-# Mynstursgreining---Lokaverkfni
+# Mynstursgreining---Lokaverkefni
